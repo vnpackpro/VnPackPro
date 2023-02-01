@@ -2,9 +2,9 @@
 
 VNPackPro là đơn vị bán máy đóng đai, máy dán băng keo, máy dựng - mở - dán thùng, máy co màng chính hãng giá tốt nhất, máy chiết rót, máy đóng gói. VNPackPro nhận tư vấn lắp đặt dây chuyền đóng gói tự động, tất cả sản phẩm được bảo hành 12 tháng tại vnpackpro.com
 
-- SDT: Liền kề Hải Âu, KĐT Cầu Bươu - X.Thanh Liệt - H.Thanh Trì - TP.Hà Nội
+- Địa chỉ: Liền kề Hải Âu, KĐT Cầu Bươu - X.Thanh Liệt - H.Thanh Trì - TP.Hà Nội
 
-- Địa chỉ: 0936773553
+- SDT: 0936773553
 
 VNPACK PRO là thương hiệu đã được đơn vị TNHH đầu tư thương mại A2Z đăng ký bảo hộ độc quyền nhãn hiệu & Logo tại cục SHTT Việt Nam. VNPACK PRO luôn tâm niệm: THÀNH CÔNG VÀ SỰ chấp nhận CỦA khách hàng – CŨNG LÀ THÀNH CÔNG CỦA CHÚNG TÔI.
 
